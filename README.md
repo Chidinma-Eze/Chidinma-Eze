@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Chidinma-Ezeh
+- 👀 I’m interested in Defi and Blockchain technology 
+- 🌱 I’m currently learning Technical writing 
+- 💞️ I’m looking to collaborate on promising web3 projects.
